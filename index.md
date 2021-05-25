@@ -25,7 +25,7 @@
 Actuellement en BTS communication
 * **2018 L1 Droit Université Pasteur Rouen
 Option sciences sociales
-* ** 2018 Baccaulauréat ES Lycée Jeanne d'Arc Rouen**
+* **2018 Baccaulauréat ES Lycée Jeanne d'Arc Rouen**
 Option Italien - Education physique et sportive
 
 ## Expériences professionnelles
@@ -35,7 +35,7 @@ Graphisme
 * **2017-2020 Babysitting**
 Activités diverses pour occuper les enfants
 Repas et coucher
-* ** 2019 Stagiaire Le Réveil de Neufchâtel**
+* **2019 Stagiaire Le Réveil de Neufchâtel**
 Relations commerciales
 * **2019 Stagiaire Imprimerie Vallée**
 Observation
