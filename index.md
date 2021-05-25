@@ -23,7 +23,7 @@
 ## Diplômes et formations
 * **2019 BTS communication Lycée Jeanne d'Arc Rouen**
 Actuellement en BTS communication
-* **2018 L1 Droit Université Pasteur Rouen
+* **2018 L1 Droit Université Pasteur Rouen**
 Option sciences sociales
 * **2018 Baccaulauréat ES Lycée Jeanne d'Arc Rouen**
 Option Italien - Education physique et sportive
